@@ -1,12 +1,12 @@
-Hi! I'm Stelle!
+Hi! I'm Jade!
 
-Looking to collab on anything fnf
+Just Here To Play FNF mods :]
 
 I like to mess around with mods for fun.
 
 Pronouns: She/Her
 
-Coding Status: Mod in progress
+Coding Status: Mod in progress (IDK WHAT IM DOING HELP :sob:)
 
 me fr:
 
