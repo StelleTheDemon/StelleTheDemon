@@ -2,11 +2,9 @@ Hi! I'm Jade!
 
 Just Here To Play FNF mods :]
 
-I like to mess around with mods for fun.
+I like to borrow mods and mess around with them for fun. (Usually, I just change small things like the bf model or smth.)
 
-Pronouns: She/Her
-
-Coding Status: Mod in progress (IDK WHAT IM DOING HELP :sob:)
+Coding Status: Mod in progress (IDK WHAT IM DOING, SOMEONE HELP :sob:)
 
 me fr:
 
